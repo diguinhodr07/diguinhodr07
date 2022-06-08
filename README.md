@@ -1,7 +1,7 @@
 - 👋 SLV, MEU NOME É @diguinhodr07
 - 👀 EU ME INTERESSO EM DORMI
 - 🌱 ATUALMENTE ESTOU VIVENDO
-- 💞️ I’m looking to collaborate on ...
+- 💞️ PROCURA-SE UM COLABORADOR
 - 📫 COMO CHEGAR ATE MIM; SO MANDA UM "OI"
 
 <!---
